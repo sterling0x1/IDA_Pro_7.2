@@ -24,8 +24,7 @@ https://bbs.pediy.com/thread-248989.htm
 ## x64安装包
 ![](./3.jpg)
 ```
-链接：https://pan.baidu.com/s/1F758v3fQ9egeyCCPDiGLNA 
-
-提取码：u05x
+# download
+https://share.weiyun.com/5Eg1MVA
 
 ```
